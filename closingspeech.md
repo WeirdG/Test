@@ -12,4 +12,3 @@ As we leave here tonight, let's carry forward the spirit of this celebration. Le
 
 Thank you once again for being part of this special event. May we all leave here inspired to create a world where every senior is respected for their contributions, and every girl child is empowered to reach her full potential. Good night, and may the connections you've made tonight last a lifetime."
 
-These speeches aim to capture the essence of both National Seniors Day and International Day of the Girl Child, emphasizing the importance of intergenerational connections and mutual respect. Feel free to adjust them to better fit your specific event and audience.
